@@ -43,7 +43,7 @@ I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talk
 Small doodles of Me and my partner, both ocs and irl ٩(ˊᗜˋ*)و ♡
 ![image alt](https://github.com/Tension-Perfection/Tension-perfection/blob/c90644364b3b5f01c6ee2bcf90bedf5b77cf3737/IMG_20250611_160321.jpg)
 ![image alt](https://github.com/Tension-Perfection/Tension-perfection/blob/c90644364b3b5f01c6ee2bcf90bedf5b77cf3737/IMG_20250611_160310.jpg) 
-
+Same as in flynn's github Readme, though I already don't expect anyone to be doing this thing w me but ¬ Don't flirt w me please!
 
 Unfinished art of mine!!↓↓ (already finished and posted) 
 ![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob/afe320eb8b64c2f0a7bcf9e269789223528b6004/HiPaint_1747495111231.jpg)
