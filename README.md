@@ -8,7 +8,7 @@
 
 - (..◜ᴗ◝..) Hobbies [Writing songs for myself, Playing my guitar, VC/Hang out W friends, Drawing](I mostly do multitasking, and despite being Busy, I always have time to spend time w my friends..)
 
-- ᓚ₍⑅^..^₎♡ I am a very talkative and energetic person, and yet I could be shy sometimes.. [When I make friends, I mostly whisper to the person and ask them to sit with me when I do have the courage to do so..](I mostly prefer being alone nowadays due to a personal issue but there's also a part of me that wants to be accompanied by my friends ( ˶ˆᗜˆ˵ ))
+- ᓚ₍⑅^..^₎♡ I am a very talkative and energetic person, and yet I could be shy sometimes.. [When I make friends, I mostly whisper to the person and ask them to sit with me when I do have the courage to do so..]
 
 - ♡⸜(˃ ᵕ ˂ )⸝ Smaller simpler Infos about me : [My birthday is on August 29, My pronouns are He / She / They and I am Bisexual, And I'm an ISTJ]
 
@@ -17,14 +17,13 @@
 - (╥﹏╥) I'm barely online nowadays since I've been spending time w my friends more often and usually on calls with them, we're mostly online in pt during evening! **Friend's I'm call with : S and E**
 
 - (˶˃⤙˂˶) I'm mostly seen In ; **Roblox areas and Random spots.. I'm easily spotted..**
-
-- Only friends can ask for inspos from my ponies.. I've seen some heavy inspos lately...
-
-
-Bands / Artists I listen to ¦ Nirvana, nelward, Miss Construction, Mom jeans., The Modly Peaches, gjallarhornit, Adrianne Lenker, The Cure, Arctic Monkeys, Alex G, Mac Demarco, overtonight, Big Thief, And One, The Marias, Fried By Fluoride, STOMACH BOOK, Jack Stauber, The Smiths and ect.
+- ( ꩜ ᯅ ꩜;)⁭ ⁭Only friends can ask for inspos from my ponies.. I've seen some heavy inspos lately...
 
 
-- Dni
+! ‧₊˚♪ 𝄞₊˚⊹ Bands / Artists I listen to ¦ Nirvana, nelward, Miss Construction, Mom jeans., The Modly Peaches, gjallarhornit, Adrianne Lenker, The Cure, Arctic Monkeys, Alex G, Mac Demarco, overtonight, Big Thief, And One, The Marias, Fried By Fluoride, STOMACH BOOK, Jack Stauber, The Smiths, Kimya Dawson and ect.
+¬ (ㅅ´ ˘ `) Instruments I play (ᵕ—ᴗ—) Guitar, Kalimba and Piano!
+
+- Dni (,,•᷄‎ࡇ•᷅ ,,)?
 
 -I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
 I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talking about me inappropriately / negatively like that.. I don't wanna seem mean but what if it is mean, I mean what you did was painful than words can explain.. but what you did was unforgivable, focus on your education instead of making yourself look like someone who spreads misinformation I mean you are but yeah still
