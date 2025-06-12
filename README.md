@@ -21,6 +21,9 @@
 - Only friends can ask for inspos from my ponies.. I've seen some heavy inspos lately...
 
 
+Bands / Artists I listen to ¦ Nirvana, nelward, Miss Construction, Mom jeans., The Modly Peaches, gjallarhornit, Adrianne Lenker, The Cure, Arctic Monkeys, Alex G, Mac Demarco, overtonight, Big Thief, And One, The Marias, Fried By Fluoride, STOMACH BOOK, Jack Stauber and ect.
+
+
 - Dni
 
 -I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
