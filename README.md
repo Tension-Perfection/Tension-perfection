@@ -24,6 +24,7 @@
 - (˶˃⤙˂˶) I'm mostly seen In ; **Roblox areas and Random spots.. I'm easily spotted..**
 - ( ꩜ ᯅ ꩜;)⁭ ⁭Only friends can ask for inspos from my ponies.. I've seen some heavy inspos lately...
 
+At the mall during weekends but still can spend time w friends! Probably buying things and on an arcade date with my partner! Leleleele mostly on vc too heh
 
 ! ‧₊˚♪ 𝄞₊˚⊹ Bands / Artists I listen to ¦ Nirvana, nelward, Miss Construction, Mom jeans., The Modly Peaches, gjallarhornit, Adrianne Lenker, The Cure, Arctic Monkeys, Alex G, Mac Demarco, overtonight, Big Thief, And One, The Marias, Fried By Fluoride, STOMACH BOOK, Jack Stauber, The Smiths, Kimya Dawson and ect.
 
