@@ -2,6 +2,17 @@
 <h1 align="center">ꪜ꠸ꪜ꠸ᦔ ρꫀꪖ᥅ꪶꫀᦓᥴꫀꪀꪻ</h1>
 <h3 align="center">I made this for the funnies, And for "Decorations" but I don't really know how to make these correctly..</h3>
 
+- ( •̯́ ₃ •̯̀) Names I use..
+Ted ( main, used for 2 years )
+Jin ( "second main", used for 2 years)
+Sienna
+Norbit
+
+(≖⩊≖) I don't mind being called by my irl name!
+Marlin
+Mark (Nickname)
+
+
 - (˶ᵔヮᵔ˶) Interests [Simple Interests like :](Artistic Interests, Music, Astrology, Games...)
 
 - (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ I also love making new friends so please don't be shy to approach me! I'm quite shy as well.. **Heads up! I get very comfortable guys.. AS IN THE MOST. MOST. NORMAL THING I WOULD SAY IS "Don't make PAPI CHULO angry dawg".. Remind me when you guys get uncomfy okay..**
