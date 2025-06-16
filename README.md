@@ -48,21 +48,83 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 
 ¬ (ㅅ´ ˘ `) Instruments I play (ᵕ—ᴗ—) Guitar, Kalimba and Piano!
 
-Comfort characters / Favorite characters
+**ᛝ Comfort characters / Favorite characters ˎˊ˗**
 
 - Guest 1337
+
+- 007n7
+
 - Shedletsky / Telamon
+
 - Chance
+
 - Poob
+
 - UG
+
 - Kasper / Infected
+
 - Dogman
+
 - Thomas
+
 - Fisher
+
 - Looey
+
 - Shrimpo
 
-- Dni (,,•᷄‎ࡇ•᷅ ,,)?
+**𐔌 Comfort ships / Favorite¦Liked ships ˎˊ˗**
+
+- Detey
+
+- ToxicHero
+
+- FreshBlood
+
+- SlaughteringPunch
+
+- ToughLuck
+
+- Buildershed / Buildermon
+
+- PizzaBurger
+
+- Ichance
+
+- PizzaLuck
+
+- ShopDept
+
+- Gradientcube
+
+- InfectedCatFood (made that shipname up..)
+
+- Dr. Retro n Bive
+
+- WallMark
+
+- SkaterBeetle
+
+- PartyBeetle / KillJoy
+
+- Pest n Emerson
+
+- RageBait
+
+- BalloonDarts
+
+- BerryFunny
+
+- ClownFish
+
+- BerryShop
+
+# THERES TOO MANY SHIPS I LIKE IM NOT PUTTING ALL OF IT OMG
+
+
+
+**Dni (,,•᷄‎ࡇ•᷅ ,,)?**
 
 -I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
 I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talking about me inappropriately / negatively like that.. I don't wanna seem mean but what if it is mean, I mean what you did was painful than words can explain.. but what you did was unforgivable, focus on your education instead of making yourself look like someone who spreads misinformation I mean you are but yeah still
