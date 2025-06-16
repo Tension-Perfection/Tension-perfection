@@ -36,6 +36,7 @@
 ┆　　　Mark (Nickname)
 
 ┆
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 - (˶ᵔヮᵔ˶) Interests [Simple Interests like :](Artistic Interests, Music, Astrology, Games...)
