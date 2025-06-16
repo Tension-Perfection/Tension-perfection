@@ -48,6 +48,20 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 
 ¬ (ㅅ´ ˘ `) Instruments I play (ᵕ—ᴗ—) Guitar, Kalimba and Piano!
 
+Comfort characters / Favorite characters
+
+- Guest 1337
+- Shedletsky / Telamon
+- Chance
+- Poob
+- UG
+- Kasper / Infected
+- Dogman
+- Thomas
+- Fisher
+- Looey
+- Shrimpo
+
 - Dni (,,•᷄‎ࡇ•᷅ ,,)?
 
 -I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
