@@ -78,7 +78,7 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-**ᛝ Comfort characters / Favorite characters ˎˊ˗**
+(੭˃ᴗ˂)੭ **ᛝ Comfort characters / Favorite characters ˎˊ˗**
 
 - Guest 1337
 
@@ -104,7 +104,7 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 
 - Shrimpo
 
-**𐔌 Comfort ships / Favorite¦Liked ships ˎˊ˗**
+◝(ᵔᵕᵔ)◜ **𐔌 Comfort ships / Favorite¦Liked ships ˎˊ˗**
 
 - Detey
 
@@ -159,7 +159,7 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 **Dni (,,•᷄‎ࡇ•᷅ ,,)?**
 
 -I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
-I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talking about me inappropriately / negatively like that.. I don't wanna seem mean but what if it is mean, I mean what you did was painful than words can explain.. but what you did was unforgivable, focus on your education instead of making yourself look like someone who spreads misinformation I mean you are but yeah still
+I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talking about me inappropriately / negatively like that.. I don't wanna seem mean but what if it is mean, I mean what you did was painful than words can explain.. but what you did was unforgivable, focus on your education instead of making yourself look like someone who spreads misinformation I mean you are but yeah still Σ(°ロ°) 
 
 <h3 align="left">Art:</h3>
 <p align="left">
