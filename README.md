@@ -3,21 +3,21 @@
 <h3 align="center">I made this for the funnies, And for "Decorations" but I don't really know how to make these correctly..</h3>
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-     - ( •̯́ ₃ •̯̀) Names I use..
+- ( •̯́ ₃ •̯̀) Names I use..
 
-     Ted ( main, used for 2 years )
+Ted ( main, used for 2 years )
 
-     Jin ( "second main", used for 2 years)
+Jin ( "second main", used for 2 years)
 
-     Sienna
+Sienna
 
-     Norbit
+Norbit
 
-     (≖⩊≖) I don't mind being called by my irl name!
+(≖⩊≖) I don't mind being called by my irl name!
 
-     Marlin
-
-     Mark (Nickname)
+Marlin
+     
+Mark (Nickname)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
