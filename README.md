@@ -42,8 +42,10 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 ⠀
-⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀:¨ ·.· ¨:
 ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀
+:¨ ·.· ¨:
+⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀
+
 `· . Johanna / Flynn.		@MissConstruction
 
 - (˶ᵔヮᵔ˶) Interests [Simple Interests like :](Artistic Interests, Music, Astrology, Games...)
