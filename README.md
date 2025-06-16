@@ -74,6 +74,7 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 ! ‧₊˚♪ 𝄞₊˚⊹ Bands / Artists I listen to ¦ Nirvana, nelward, Miss Construction, Mom jeans., The Modly Peaches, gjallarhornit, Adrianne Lenker, The Cure, Arctic Monkeys, Alex G, Mac Demarco, overtonight, Big Thief, And One, The Marias, Fried By Fluoride, STOMACH BOOK, Jack Stauber, The Smiths, Kimya Dawson and ect.
 
 ¬ (ㅅ´ ˘ `) Instruments I play (ᵕ—ᴗ—) Guitar, Kalimba and Piano!
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 **ᛝ Comfort characters / Favorite characters ˎˊ˗**
