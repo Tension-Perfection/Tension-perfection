@@ -120,7 +120,7 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 
 - BerryShop
 
-# THERES TOO MANY SHIPS I LIKE IM NOT PUTTING ALL OF IT OMG
+**THERES TOO MANY SHIPS I LIKE IM NOT PUTTING ALL OF IT OMG**
 
 
 
