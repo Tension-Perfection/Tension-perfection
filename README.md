@@ -74,155 +74,82 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 ! ‧₊˚♪ 𝄞₊˚⊹ Bands / Artists I listen to ¦ Nirvana, nelward, Miss Construction, Mom jeans., The Modly Peaches, gjallarhornit, Adrianne Lenker, The Cure, Arctic Monkeys, Alex G, Mac Demarco, overtonight, Big Thief, And One, The Marias, Fried By Fluoride, STOMACH BOOK, Jack Stauber, The Smiths, Kimya Dawson and ect.
 
 ¬ (ㅅ´ ˘ `) Instruments I play (ᵕ—ᴗ—) Guitar, Kalimba and Piano!
-┆﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-┆
+**ᛝ Comfort characters / Favorite characters ˎˊ˗**
 
-┆**ᛝ Comfort characters / Favorite characters ˎˊ˗**
+- Guest 1337
 
-┆
+- 007n7
 
-┆- Guest 1337
+- Shedletsky / Telamon
 
-┆
+- Chance
 
-┆- 007n7
+- Poob
 
-┆
+- UG
 
-┆- Shedletsky / Telamon
+- Kasper / Infected
 
-┆
+- Dogman
 
-┆- Chance
+- Thomas
 
-┆
+- Fisher
 
-┆- Poob
+- Looey
 
-┆
+- Shrimpo
 
-┆- UG
+**𐔌 Comfort ships / Favorite¦Liked ships ˎˊ˗**
 
-┆
+- Detey
 
-┆- Kasper / Infected
+- ToxicHero
 
-┆
+- FreshBlood
 
-┆- Dogman
+- SlaughteringPunch
 
-┆
+- ToughLuck
 
-┆- Thomas
+- Buildershed / Buildermon
 
-┆
+- PizzaBurger
 
-┆- Fisher
+- Ichance
 
-┆
+- PizzaLuck
 
-┆- Looey
+- ShopDept
 
-┆
+- Gadientcube
 
-┆- Shrimpo
+- InfectedCatFood (made that shipname up..)
 
-┆
+- Dr. Retro n Bive
 
-┆**𐔌 Comfort ships / Favorite¦Liked ships ˎˊ˗**
+- WallMark
 
-┆
+- SkaterBeetle
 
-┆- Detey
+- PartyBeetle / KillJoy
 
-┆
+- Pest n Emerson
 
-┆- ToxicHero
+- RageBait
 
-┆
+- BalloonDarts
 
-┆- FreshBlood
+- BerryFunny
 
-┆
+- ClownFish
 
-┆- SlaughteringPunch
+- BerryShop
 
-┆
+**THERES TOO MANY SHIPS I LIKE IM NOT PUTTING ALL OF IT OMG**
 
-┆- ToughLuck
-
-┆
-
-┆- Buildershed / Buildermon
-
-┆
-
-┆- PizzaBurger
-
-┆
-
-┆- Ichance
-
-┆
-
-┆- PizzaLuck
-
-┆
-
-┆- ShopDept
-
-┆
-
-┆- Gradientcube
-
-┆
-
-┆- InfectedCatFood (made that shipname up..)
-
-┆
-
-┆- Dr. Retro n Bive
-
-┆
-
-┆- WallMark
-
-┆
-
-┆- SkaterBeetle
-
-┆
-
-┆- PartyBeetle / KillJoy
-
-┆
-
-┆- Pest n Emerson
-
-┆
-
-┆- RageBait
-
-┆
-
-┆- BalloonDarts
-
-┆
-
-┆- BerryFunny
-
-┆
-
-┆- ClownFish
-
-┆
-
-┆- BerryShop
-
-┆
-
-┆**THERES TOO MANY SHIPS I LIKE IM NOT PUTTING ALL OF IT OMG**
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 
