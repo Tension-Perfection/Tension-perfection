@@ -43,9 +43,8 @@ R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob
 
 ⠀
 ｡ﾟﾟ･｡･ﾟﾟ｡ 
-ﾟ。 
 
-Johanna / Flynn.		@MissConstruction
+ﾟ。 Johanna / Flynn.		@MissConstruction
 
 - (˶ᵔヮᵔ˶) Interests [Simple Interests like :](Artistic Interests, Music, Astrology, Games...)
 
