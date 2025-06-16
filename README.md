@@ -2,7 +2,8 @@
 <h1 align="center">Last Updated ¦ June 16, 6:19pm</h1>
 <h3 align="center">I made this for the funnies, And for "Decorations" but I don't really know how to make these correctly..</h3>
 ┆﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-
+˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
+　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦
 ┆
 
 ┆　　　( •̯́ ₃ •̯̀) Names I use..
