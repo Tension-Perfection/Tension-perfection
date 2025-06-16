@@ -1,25 +1,25 @@
 ![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob/dd31057f3a9e253258b05dc34299f1bf3762f239/IMG_20250519_022251.jpg)
 <h1 align="center">Last Updated ¦ June 16, 6:19pm</h1>
 <h3 align="center">I made this for the funnies, And for "Decorations" but I don't really know how to make these correctly..</h3>
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-
-- ( •̯́ ₃ •̯̀) Names I use..
-
-Ted ( main, used for 2 years )
-
-Jin ( "second main", used for 2 years)
-
-Sienna
-
-Norbit
-
-(≖⩊≖) I don't mind being called by my irl name!
-
-Marlin
-     
-Mark (Nickname)
-
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+┆﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+┆
+┆　　　( •̯́ ₃ •̯̀) Names I use..
+┆
+┆　　　Ted ( main, used for 2 years )
+┆
+┆　　　Jin ( "second main", used for 2 years)
+┆
+┆　　　Sienna
+┆
+┆　　　Norbit
+┆
+┆　　　(≖⩊≖) I don't mind being called by my irl name!
+┆
+┆　　　Marlin
+┆     
+┆　　　Mark (Nickname)
+┆
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 - (˶ᵔヮᵔ˶) Interests [Simple Interests like :](Artistic Interests, Music, Astrology, Games...)
 
