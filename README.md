@@ -17,7 +17,7 @@
 
 - ♡⸜(˃ ᵕ ˂ )⸝ Smaller simpler Infos about me : [My birthday is on August 29, My pronouns are He / She / They and I am Bisexual, And I'm an ISTJ]
 
-- ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ My beloved close friends! = [X, S(silver), A(AiZen), E(Elv), S(saw), S, F(fush), F(flynn), E, K, L/A, M/S, R, B, Y, C, V, E, E, N]
+- ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ My beloved close friends! = [X, S(silver), A(AiZen), E(Elv), S(saw), S, F(fush), F(flynn), E, K, L/A, M/S, R, B, Y, C, V, E, E, N] I love my friends so much chat
 
 - (╥﹏╥) I'm barely online nowadays since I've been spending time w my friends more often and usually on calls with them, we're mostly online in pt during evening! **Friend's I'm call with : S and E**
 
