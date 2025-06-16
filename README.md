@@ -1,6 +1,6 @@
 R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob/dd31057f3a9e253258b05dc34299f1bf3762f239/IMG_20250519_022251.jpg)
-<h1 align="center">Last Updated ¦ June 16, 6:19pm</h1>
-<h3 align="center">I made this for the funnies, And for "Decorations" but I don't really know how to make these correctly..</h3>
+<h1 align="center">Շєภรเ๏ภ-קєгŦєςՇเ๏ภ</h1>
+<h3 align="center">Last Updated ¦ June 16, 6:44pm..</h3>
 ┆﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
 　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦
@@ -44,7 +44,7 @@ R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob
 ⠀
 ｡ﾟﾟ･｡･ﾟﾟ｡ 
 
-　　ﾟ°。 Johanna / Flynn.		@MissConstruction
+　ﾟ°。 Johanna / Flynn.		@MissConstruction
 
 - (˶ᵔヮᵔ˶) Interests [Simple Interests like :](Artistic Interests, Music, Astrology, Games...)
 
