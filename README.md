@@ -30,7 +30,7 @@ R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob
 
 ┆
 
-┆　　　Marlin
+┆　　　Marlin / Mariel
 
 ┆     
 
