@@ -9,8 +9,7 @@ R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob
  Disc ¬ looeyli :</h3>
 <p align="left">
 </p>
-
-![image alt](https://github.com/Tension-Perfection/Tension-perfection/blob/d9931c7cf78ca9bab04b39b2756e230df4499411/Screenshot_2025_0622_182622.png) 
+ 
 
 ┆﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
