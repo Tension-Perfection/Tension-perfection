@@ -1,8 +1,13 @@
 R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob/dd31057f3a9e253258b05dc34299f1bf3762f239/IMG_20250519_022251.jpg)
 <h1 align="center">Շєภรเ๏ภ-קєгŦєςՇเ๏ภ</h1>
 <h3 align="center">Last Updated ¦ June 16, 6:44pm..</h3>
-#I do Pony and Art commissions! [Both are currently open] Dm me on disc or X!
+
+<h3 align="left">I do Pony and Art commissions! [Both are currently open] Dm me on disc or X!
 X ¬ circ0s
+Disc ¬ looeyli :</h3>
+<p align="left">
+</p>
+
 ┆﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
 　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦
