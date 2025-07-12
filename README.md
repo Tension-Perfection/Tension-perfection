@@ -90,6 +90,9 @@ At the mall during weekends but still can spend time w friends! Probably buying 
 
 ¬ (ㅅ´ ˘ `) Instruments I play (ᵕ—ᴗ—) Guitar, Kalimba and Piano!
 
+![image alt](https://github.com/Tension-Perfection/Tension-perfection/blob/92013bb7baaaecf14245766061ccae6d39525dfa/image0-1.gif) 
+
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 (੭˃ᴗ˂)੭ **ᛝ Comfort characters / Favorite characters ˎˊ˗**
