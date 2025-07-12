@@ -52,6 +52,9 @@ R6![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
+![image alt](https://github.com/Tension-Perfection/Tension-perfection/blob/b0871eb82df3871ce1bb791f0540775776544e78/image0.gif) 
+
+
 ⠀
  ｡ﾟﾟ･｡･ﾟﾟ｡ J + M
 
